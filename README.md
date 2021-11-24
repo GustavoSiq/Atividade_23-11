@@ -1,0 +1,1 @@
+Resolução dos exercícios de Leonardo para o Aqui Educa (23-11-2021)
